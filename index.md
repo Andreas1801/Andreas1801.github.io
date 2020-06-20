@@ -22,3 +22,5 @@ Before that, he was also the mascot of the magazine Pilote.
 As Asterix always says:
 > These Romans are crazy!
 > Die Spinnen, die Römer!
+
+<img src="https://br.pinterest.com/pin/93027548534249814/"/>
