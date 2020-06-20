@@ -18,3 +18,7 @@ Before that, he was also the mascot of the magazine Pilote.
 	* on one side, the ocean, and 
 	* on the other by four unlucky Roman garrisons, intended to keep a watchful eye and ensure that the Gauls do not get up to mischief. 
 	These camps are Compendium, Aquarium, Laudanum and Totorum.
+
+As Asterix always says:
+> These Romans are crazy!
+> Die Spinnen, die Römer!
