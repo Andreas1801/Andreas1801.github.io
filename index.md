@@ -23,4 +23,4 @@ As Asterix always says:
 > These Romans are crazy!
 > Die Spinnen, die Römer!
 
-<img src="https://br.pinterest.com/pin/93027548534249814/"/>
+<img src="https://comedix.de/grafik/figuren/asterix_zorro.gif"/>
